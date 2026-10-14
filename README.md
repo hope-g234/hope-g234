@@ -29,7 +29,7 @@ Check out my pinned repositories below for active and completed work.
 
 ### 📫 Let's connect
 - LinkedIn: [www.linkedin.com/in/gokula-gopala-454a64287]
-
+- Portfolio : [https://preview--data-pro-spotlight.lovable.app/?__lovable_receipt=mat_28fynb56a58hn8am41cw818g21#top]
 
 ---
 📊 Currently building consistently — one project, one commit at a time.
